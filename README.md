@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Lak1slav
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...nbgtjtyhtr5sgeargs
+- 💞️ I’m looking to collaborate on ...nklu,iuydgdhtrj
 - 📫 How to reach me rokoijsrfjiose
 - 😄 Pronouns: )))))osdnh
 - ⚡ Fun fact: ...rgtrg56423tgf
