@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...itfurfuyi
-- 📫 How to reach me oijregjgvnergirg
+- 📫 How to reach me dderydtfyuoyu8ijok
 - 😄 Pronouns: )))))osdnh
 - ⚡ Fun fact: ...rgtrg56423tgf
 Lakislav/Lakislav is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
